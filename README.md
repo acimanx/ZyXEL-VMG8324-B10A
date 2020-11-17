@@ -1,0 +1,1 @@
+# ZyXEL-VMG8324-B10A
